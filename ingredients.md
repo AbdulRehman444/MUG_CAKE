@@ -1,4 +1,4 @@
-Ingredients 
+**Ingredients**
 2 tablespoons unsalted butter
 3 tablespoons milk
 1/2 teaspoon pure vanilla extract
